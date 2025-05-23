@@ -2,6 +2,8 @@
 
 **Basketball Stars** is not just another sports game — it’s an **epic 3D basketball duel** where your skills, reflexes, and strategies are tested in **hyper-realistic courts**. Whether you're aiming to be a **legendary dunk master** or a **rapid shot sniper**, this game delivers **unblocked**, **high-octane basketball battles** online or offline.
 
+## <a href="https://1kb.link/BXTver">👉 Click To Play Basketball Stars Unblocked 👈</a>
+
 ### 🏀 Game Overview
 
 * **Genre:** Sports, Multiplayer, Arcade
